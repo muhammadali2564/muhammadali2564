@@ -2,7 +2,7 @@
 
 Phone: +92 3035006484  
 Email: ali.bashir1947@gmail.com  
-LinkedIn: [LinkedIn Profile](https://www.linkedin.com/in/your-profile)
+LinkedIn: [LinkedIn Profile](https://www.linkedin.com/in/malibashir/)
 
 ## Work Experience
 
